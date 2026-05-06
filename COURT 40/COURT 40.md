@@ -5,7 +5,8 @@
   
 **The Setting**  
   
-We have a large private venue just outside Wānaka.  
+We have a large private venue nestled among the mountains, just outside Wānaka.
+
 Everyone invited is accommodated. One house, one weekend, all in.  
   
 ⸻  
