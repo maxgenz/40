@@ -18,7 +18,7 @@ All that’s needed of you:
 * Arrival: Friday, 26 June  
 * Airlines: [Air New Zealand](https://www.airnewzealand.co.nz) or [Jetstar](https://www.jetstar.com/nz/en/home?adults=1&flight-type=2&origin=AKL)  
   
-Aim to land comfortably before 1:30pm on arrival day to make the 2PM shuttle.  
+Aim to land comfortably before 1:30pm on arrival day to make the 2pm shuttle.  
   
 ⸻  
   
