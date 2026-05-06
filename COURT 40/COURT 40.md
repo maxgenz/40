@@ -27,9 +27,9 @@ Aim to land comfortably before 1:30pm on arrival day to make the 2pm shuttle.
   
 * A shuttle will depart Queenstown Airport at 2pm on Friday  
 * This will take guests directly to the house  
-* Checkout is 10:00am Sunday, with a return shuttle to the airport shortly after  
+* Checkout is 10am Sunday, with a return shuttle to the airport shortly after  
   
-If you plan to leave on Sunday, book departing flights from Queenstown no earlier than 1:00pm Sunday to allow for transfer timing.  
+If you plan to leave on Sunday, book departing flights from Queenstown no earlier than 1pm Sunday to allow for transfer timing.  
   
 ⸻  
   
